@@ -1,2 +1,2 @@
-"High School Notebook" was an idea I came up with while at my local Walgreens buying a notepad to jot my ideas down in.  I walked into the "School Supplies" section and picked up a green spiral notebook.  I remembered drawing and writing all over the covers of mine in high school, everyone did, and I hope the kids today still do!
-<center><img src="https://github.com/Judd515/high-school-notebook/blob/main/Collection/4.png?raw=true></center>
+"High School Notebook" was an idea I came up with while at my local Walgreens buying a notepad to jot my ideas down in.  I walked into the "School Supplies" section and picked up a green spiral notebook.  I was instantly reminded of drawing and writing all over the covers of mine in high school, everyone did, and I hope the kids today still do!
+<p align="center"><img src="https://github.com/Judd515/high-school-notebook/blob/main/Collection/4.png"><p>
