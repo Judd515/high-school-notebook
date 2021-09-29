@@ -1,0 +1,1 @@
+"High School Notebook" was an idea I came up with while at my local Walgreens buying a notepad to jot my ideas down in.  I walked into the "School Supplies" section and picked up a green spiral notebook.  I remembered drawing and writing all over the covers of mine in high school, everyone did, and I hope the kids today still do!
